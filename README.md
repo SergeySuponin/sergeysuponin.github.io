@@ -1,1 +1,1 @@
-# sergeysuponin.ksu_sait.github.io
+# sergeysuponin.github.io
